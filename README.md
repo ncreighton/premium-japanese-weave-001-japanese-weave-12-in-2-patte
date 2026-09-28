@@ -1,0 +1,2 @@
+# premium-japanese-weave-001-japanese-weave-12-in-2-patte
+You're juggling inspiration boards, pattern sketches, and craft ideas across a dozen apps—losing half your designs in the chaos. The Japanese Weave &amp; 12-in-2 Pattern Craft Hub brings every weave pattern, technique, and project into one beautifully organized Notion workspace.  This isn't just another template. It's a complete creative ecosystem buil
